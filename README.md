@@ -3,6 +3,17 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
+
+- uiueo
+- ]wiuolql
+
+- e'oiya'sa/slioy
+- ordinryh<>
+- nk;[[][]
+- makling
+
+n
+
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
